@@ -1,4 +1,4 @@
-### Olá!! Sou o Leonardo Paiva
+### Olá!! Sou o Leonardo Paiva 🎯
 
 <div>
   <a href="https://github.com/leonardopaivx">
